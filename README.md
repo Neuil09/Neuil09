@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any coding project that could make me learn something new 
 - 📫 How to reach me "assanfrepel09@outlook.com" 
 - 😄 Pronouns: He/Him/Her
-- ⚡ Fun fact: I sing 😁. I tryna mix music and computing (coding, programming), that's weird, that's my world!
+- ⚡ Fun fact: I sing, I rap, I like reading and tripping, I'm fun, not gonna say mad but fun, 😁. I tryna mix them all and that's quite weird, but that's my world!
 
 <!---
 Neuil09/Neuil09 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
