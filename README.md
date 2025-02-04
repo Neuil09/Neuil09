@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning python, I think I'm done but we never know enough, I keep learning each day
 - 💞️ I’m looking to collaborate on any coding project that could make me learn something new 
 - 📫 How to reach me "assanfrepel09@outlook.com" 
-- 😄 Pronouns: He/Him/Her
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: I sing, I rap, I like reading and tripping, I'm fun, not gonna say mad but fun, 😁. I tryna mix them all and that's quite weird, but that's my world!
 
 <!---
