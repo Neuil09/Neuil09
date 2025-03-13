@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Neuil09
-- 👀 I’m interested in all about Coding, AI and about Jesus Christ,  yes I'm religious..
+- 👋 Hi, I’m @Frepel Assan but when I sing, my name is Neuil_09
+- 👀 I’m interested in all about Coding, AI and about Jesus Christ,  yes I'm religious, I'm a Latter Days Saint!
 - 🌱 I’m currently learning python, I think I'm done but we never know enough, I keep learning each day
 - 💞️ I’m looking to collaborate on any coding project that could make me learn something new 
 - 📫 How to reach me "assanfrepel09@outlook.com" 
